@@ -1,0 +1,1 @@
+# Multi-Industry_AI_Trend_Analysis
